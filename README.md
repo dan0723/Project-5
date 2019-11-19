@@ -7,7 +7,7 @@
  **ATTENDING UMASS BOSTON to MIT:** 2019 - 2023
  (Night classes for credits)
  
-![image](./image0.jpeg)
+![image](./unnamed.jpeg)
 
 Quick Video Of the ocean by Umass Boston
 
